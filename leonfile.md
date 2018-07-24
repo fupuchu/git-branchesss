@@ -1,1 +1,1 @@
-this file has info about leon
+this file has info about leon and his friends
