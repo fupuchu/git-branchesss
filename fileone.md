@@ -1,4 +1,3 @@
 DELETED SOME INFO HERE
-
-
-added some info here
+Added some  shit.
+DELETED SOME INFO HERE
