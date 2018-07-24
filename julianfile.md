@@ -8,3 +8,5 @@ Yo, I don't know
 Turn off the lights and I'll glow
 To the extreme, I rock a mic like a vandal
 Light up a stage and wax a chump like a candle
+
+Word to your mother.
