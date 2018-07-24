@@ -1,1 +1,3 @@
-this is fileone with some information
+DELETED SOME INFO HERE
+
+Added some  shit.
